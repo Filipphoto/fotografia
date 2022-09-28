@@ -8,7 +8,7 @@ Filip perlik
 
 ## najnowsze zdjecia
 
-[kliknij mnie aby zobaczyc zdjecia](https://scontent-waw1-1.xx.fbcdn.net/v/t39.30808-6/308487083_629576148571338_6421123497623034833_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=730e14&_nc_ohc=jZ-UU-f_dTIAX-nCIxL&_nc_ht=scontent-waw1-1.xx&oh=00_AT-8bb2JVPVfVH4_7PsImAg9X-TXvZTSTx8_sBd2v68OEA&oe=63379281)
+[kliknij mnie aby zobaczyc zdjecia](https://scontent-frt3-1.xx.fbcdn.net/v/t39.30808-6/309194357_632422084953411_3933369926492166866_n.jpg?stp=dst-jpg_p526x395&_nc_cat=104&ccb=1-7&_nc_sid=730e14&_nc_ohc=HThzZY-S5NQAX-5tn4w&_nc_ht=scontent-frt3-1.xx&oh=00_AT8d8kTxXJzMCDtNkCWsJ2Bxk1bO7UsYgya_xIByIVO7SA&oe=6338C548)
 
 ## kontakt
 
