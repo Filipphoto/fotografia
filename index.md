@@ -15,9 +15,9 @@ Filip perlik 2022
 
 ## Kontakt mail,FB
 
-##facebook: Filip Perlik
+## facebook: Filip Perlik
 profil prywatny
-##e-mail: filipperlik2010@gmail.com
+## e-mail: filipperlik2010@gmail.com
 poczta G-mail
 
 ## aparat
