@@ -1,19 +1,24 @@
-### Witamy na stronie Fotograficznej
+### Filip Perlik Fotografia
 
-Filip perlik
+Filip perlik 2022
 
 ## zdjecia
 
 [zobacz wszystkie zdjecia](https://www.facebook.com/filip.perlik.9)
+#FACEBOOK FILIP PERLIK photos
 
-## najnowsze zdjecia
+## najnowsze zdjecia 
+#Ścieżka przyrodniczo-leśna nad bukówką
+#02/10/22
 
-[kliknij mnie aby zobaczyc zdjecia](https://scontent-frt3-1.xx.fbcdn.net/v/t39.30808-6/309194357_632422084953411_3933369926492166866_n.jpg?stp=dst-jpg_p526x395&_nc_cat=104&ccb=1-7&_nc_sid=730e14&_nc_ohc=HThzZY-S5NQAX-5tn4w&_nc_ht=scontent-frt3-1.xx&oh=00_AT8d8kTxXJzMCDtNkCWsJ2Bxk1bO7UsYgya_xIByIVO7SA&oe=6338C548)
+[kliknij tutaj aby zobaczyc zdjecia](https://scontent-frt3-1.xx.fbcdn.net/v/t39.30808-6/310125800_635651197963833_8148271965718354733_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=730e14&_nc_ohc=EzCDrpFdZmkAX8UZ0t7&_nc_ht=scontent-frt3-1.xx&oh=00_AT-TpQ6UGgsDD3ObfV7t0cfsZAZPNoIdrb13_zhAwpac9A&oe=633E14F1) 
 
-## kontakt
+## Kontakt mail,FB
 
-e-mail: filipperlik2010@gmail.com
-
+#facebook: Filip Perlik
+profil prywatny
+#e-mail: filipperlik2010@gmail.com
+poczta G-mail
 
 ## aparat
 
