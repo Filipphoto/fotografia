@@ -33,7 +33,7 @@ poczta G-mail
 
 ## aparat
 *nikon d5100*
-## obiektywy
-## *af-s dx nikkor 18-55mm*
-## *af-s tamron 70-300mm*
+## obiektyw
+## af-s dx nikkor 18-55mm
+## af-s tamron 70-300mm
 
