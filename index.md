@@ -6,7 +6,7 @@
 ## wydarzenia
 
 ## niedziela 9 pażdziernika 2022r-*19:52, 0.08.10.22*
-**Myśliwska pełnia księzyca-Pełnia Krwawego Księżyca, zwana także Księżycem Myśliwych, to pierwsza jesienna pełnia w tym roku. Tej niezwykle jasnej i wyraźnej poświacie przypisuje się magiczne właściwości, m.in. chronienie przed klątwami. Skąd wzięły się te nazwy? Co one oznaczają? Kiedy dokładnie będziemy mogli zobaczyć księżyc w całej okazałości? **
+*Myśliwska pełnia księzyca-Pełnia Krwawego Księżyca, zwana także Księżycem Myśliwych, to pierwsza jesienna pełnia w tym roku. Tej niezwykle jasnej i wyraźnej poświacie przypisuje się magiczne właściwości, m.in. chronienie przed klątwami. Skąd wzięły się te nazwy? Co one oznaczają? Kiedy dokładnie będziemy mogli zobaczyć księżyc w całej okazałości? **
 ## co oznacza księżyc myśliwych?
 *Księżyc Myśliwych jest pierwszą pełnią księżyca po żniwach. To właśnie wtedy wypada najlepszy czas na polowania, gdy na polach, łąkach i w lasach zaczynają pojawiać się dorodne lisy, jelenie, sarny czy dziki. Niegdyś wierzono, że pełnia, która wypada 9 października w niedzielę, wskazuje myśliwym drogę podczas polowania i pomaga znaleźć dużą, utuczoną zwierzynę, a tym samym zrobić zapasy na nadchodzącą, mroźną zimę.*
 
